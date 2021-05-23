@@ -1,4 +1,4 @@
-- hody, I’m @ninavizz
+- howdy, I’m @ninavizz
 - I would never, ever abuse emojis the way github suggested.
 - Except for sparklies, such as the ones below. I love sparklies. 
 
